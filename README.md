@@ -15,3 +15,4 @@ Thank you!
 
 ![image](https://github.com/mansi-manhas/free-ai-blog-title-and-meta-description-generator/assets/18692751/0b47fe94-1bbe-4309-9b69-dd63873866d8)
 
+![image](https://github.com/mansi-manhas/free-ai-blog-title-and-meta-description-generator/assets/18692751/9560ace2-aa98-485b-82c4-45d5bc3ebd24)
